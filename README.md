@@ -6,4 +6,3 @@
 </p>
 <p align="center">hi  im  tom  /  tomchom</p>
 <p align="center">im  @k4th-png's  bitch</p>
-<p align="center">if you find me on pt , c * h is fine</
